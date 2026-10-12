@@ -1,0 +1,2 @@
+# premium-koi-keeping-001-koi-keeping-pond-management
+Stop juggling sticky notes, spreadsheets, and random apps to manage your koi pond. This Notion bundle turns chaos into a clear, actionable system.  Track every water test, feeding schedule, and health observation in one central hub. No more forgotten doses or missed cleanings—your koi thrive because your data works for you.  ## What's Included  - W
